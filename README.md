@@ -56,6 +56,9 @@ Demo](https://todo-a899gs42f-preethi1502-kalais-projects.vercel.app)**
 ## 👩‍💻 Author
 
 **Preethi**
+
 **Email:** prithiyanga123@gmail.com
+
 **Github:**[@preethi1535](https://github.com/Preethi1502-kalai)
+
 **Linkedln:**[prithiyanga vk](https://www.linkedin.com/in/prithiyanga-v-k-026686371)
